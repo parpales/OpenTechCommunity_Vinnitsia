@@ -1,0 +1,1 @@
+# OpenTechCommunity_Vinnitsia
